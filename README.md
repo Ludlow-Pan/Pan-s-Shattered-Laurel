@@ -1,2 +1,6 @@
 # Pan-s-Shattered-Laurel
 The open access of Ludlow's Poetry
+
+这个GitHub页面用于我更新已完成并定稿的作品以及仍在“形成”的册子
+内容共享是免费的，尽管如此，我希望您力所能及地作出赞赏
+任何人不得在未经许可的情况下商用
